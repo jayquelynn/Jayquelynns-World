@@ -1,2 +1,2 @@
-# Jayquelynns-World
+# Mathematics
 New repository
